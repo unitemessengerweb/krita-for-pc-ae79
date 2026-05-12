@@ -1,4 +1,4 @@
-# 
+# ultimate Plugin for Krita for PC | Krita for Windows - custom-brushes and selection-tools offers the most advanced Krita for PC | Krita for Windows plugin, with custom-brushes and
 
 
 
